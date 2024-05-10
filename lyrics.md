@@ -1,0 +1,2 @@
+paatu paadava
+paarthu pesava
